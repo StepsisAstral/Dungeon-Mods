@@ -1,5 +1,3 @@
-# Dungeon-Mods
+# Dungeon-Mods and Kuudra Mods
 
-LISTEN MONKEY 
-if you think this mod is a rat, just dont download it.
-ok ily :)
+if you think its a rat dont download idiot :D
